@@ -32,7 +32,7 @@ To secure a challenging position in Computer Engineering where I can leverage my
 
 ## Skills and Strength
 - Problem-Solving Skill
-- Responsble
+- Responsible
 - Mathematics
 - Active Listening Skill
 
